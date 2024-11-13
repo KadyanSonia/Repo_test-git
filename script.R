@@ -1,5 +1,5 @@
 r script  statistics summer course 
 
-i love cats and dogs
+i love cats 
 
  
